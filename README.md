@@ -1,1 +1,1 @@
-# Homework-Algoritm-3
+Salam müəllim buyurun
